@@ -1,2 +1,0 @@
-# Glowstic-cat
- 
